@@ -175,6 +175,10 @@ rtl-sdr
 
 ## My Fav
 
+[PornHub](https://pornhub.com)
+
+[XVideos](https://xvideos3.com)
+
 [adriancourreges.com](http://www.adriancourreges.com/) ![Website](https://img.shields.io/website?down_message=down&label=%20&style=plastic&up_message=up&url=http%3A%2F%2Fwww.adriancourreges.com) - GTA V - Graphics Study
 
 [tom.io](https://tom.io/) ![Website](https://img.shields.io/website?down_message=down&label=%20&style=plastic&up_message=up&url=https%3A%2F%2Ftom.io%2F)
